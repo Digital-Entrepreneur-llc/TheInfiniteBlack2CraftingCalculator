@@ -6,3 +6,5 @@ The Godhead needs to be added as emperor
 The size right now visually accommodates everything just remove all the scrolls. 
 
 let me know if you find any other issues. or things to improve on.
+
+Buy me a Coffee? IGN: Bitcoin
